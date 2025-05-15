@@ -1,7 +1,7 @@
 # Artistly AI Coupon Code 2025 | Get Exclusive Discount Promo
 ---
 
-## [Use This Link to Get 90% OFF Artistly AI {Activate Deal}](https://paykstrt.com/48893/162907)
+## [Use This Link to Get 90% OFF Artistly AI {Activate Deal}](https://paykstrt.com/48893/163249)
 
 
 
